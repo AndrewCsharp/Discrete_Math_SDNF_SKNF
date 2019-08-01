@@ -15,4 +15,3 @@
 ![f](https://user-images.githubusercontent.com/52545598/62259870-81b75000-b418-11e9-83c5-d72307f69487.png)
 
 
-![SDNF_SKNF](https://user-images.githubusercontent.com/52545598/62260188-c2fc2f80-b419-11e9-9e1e-e7a509361eb4.png)
